@@ -1,1 +1,0 @@
-# kopideals.github.io
